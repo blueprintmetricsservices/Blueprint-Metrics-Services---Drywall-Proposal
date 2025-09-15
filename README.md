@@ -1,9 +1,3 @@
-# Blueprint Metrics Services - A Propoal for Construction Cost Estimation - Drywall
-
-We are a dedicated construction estimation firm providing precise and reliable cost analysis. Specializing in bid preparation, material takeoffs, and budget forecasting. We deliver clear and actionable estimates using the latest industry software.
-
----
-
 ## A Smarter Approach to Drywall Estimation  
 At **Blueprint Metrics Services**, we understand the pressures of the modern construction market. Winning profitable bids requires **speed, accuracy, and cost awareness**.  
 
