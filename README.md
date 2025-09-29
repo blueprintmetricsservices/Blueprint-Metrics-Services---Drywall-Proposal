@@ -24,7 +24,7 @@ This broader knowledge helps provide **comprehensive project cost assessments**,
 ---
 
 ## Why Partner with BMS?  
-We have partnered with US subcontractors on **300+ drywall projects** across **California, New York, Texas, Florida,** and more.  
+We have partnered with US subcontractors on **500+ drywall projects** across **USA & Australia**.  
 
 **Proven Results** – Reduced estimating time by **25%** for a recent US client, directly contributing to a successful bid.  
 **Remote Efficiency** – Faster delivery without adding overhead costs.  
