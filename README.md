@@ -8,7 +8,7 @@ Unlike larger firms, we combine the **personalized agility of a small team** wit
 ---
 
 ## Core Competencies  
-Our expert estimators have extensive experience with **US construction best practices** and provide highly accurate estimates across a wide range of drywall projects:  
+Our expert estimators have extensive experience with **US & Australian construction best practices** and provide highly accurate estimates across a wide range of drywall projects:  
 
 - **Wall Gypsum Board** – fire-resistant, moisture-resistant, sag-resistant, and more.  
 - **Gypsum Board Ceilings** – complete ceiling cost analysis.  
@@ -24,7 +24,7 @@ This broader knowledge helps provide **comprehensive project cost assessments**,
 ---
 
 ## Why Partner with BMS?  
-We have partnered with US subcontractors on **500+ drywall projects** across **USA & Australia**.  
+We have partnered with subcontractors on **500+ drywall projects** across **USA & Australia**.  
 
 **Proven Results** – Reduced estimating time by **25%** for a recent US client, directly contributing to a successful bid.  
 **Remote Efficiency** – Faster delivery without adding overhead costs.  
